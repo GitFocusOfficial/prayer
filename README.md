@@ -6,7 +6,7 @@ ideal, You who give me the divine gift to
 `forgive` and `forget` the wrong that is
 done to me and who are in all instances
 in my life with me. I, in this short dialogue,
-what to `thank you for everything` and
+want to `thank you for everything` and
 confirm once more that I never want to
 be separated from You no matter how
 great the material desires may be. I want
